@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning cartoon
 - 💞️ I’m looking to collaborate on web3
-- 📫 How to reach me here for tw
+- 📫 I want to find new partner,plz contract me via twitter
 
 <!---
 diao30870/diao30870 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
