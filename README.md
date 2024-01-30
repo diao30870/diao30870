@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning cartoon
 - 💞️ I’m looking to collaborate on web3
 - 📫 I want to find new partner,plz contract me via twitter
+- join the club to learn more
 
 <!---
 diao30870/diao30870 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
